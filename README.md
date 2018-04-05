@@ -1,0 +1,1 @@
+this is a jouney for MER MER to track how she learns programming.
